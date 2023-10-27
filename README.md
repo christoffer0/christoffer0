@@ -8,3 +8,4 @@
 
  ### Pode entrar em contato comigo no meu e-mail 📬
  christoffer.luiz@escola.pr.gov.br
+https://chat.google.com/dm/hoVlLUAAAAE/MBF_ukKfUjo/MBF_ukKfUjo?cls=10
