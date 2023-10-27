@@ -9,4 +9,4 @@
  ### Pode entrar em contato comigo no meu e-mail 📬
  christoffer.luiz@escola.pr.gov.br
 
-https://chat.google.com/dm/hoVlLUAAAAE/MBF_ukKfUjo/MBF_ukKfUjo?cls=10
+![](https://media.tenor.com/Yi8e3zHmZp0AAAAC/shaun-the-sheep-thumbs-up.gif)
